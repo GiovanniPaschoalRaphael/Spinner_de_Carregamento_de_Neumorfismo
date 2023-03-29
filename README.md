@@ -1,0 +1,1 @@
+# Spinner_de_Carregamento_de_Neumorfismo
